@@ -1,14 +1,21 @@
 <!-- docs/_coverpage.md -->
 
 <!-- logo -->
-![logo](media/logo.svg)
+<!-- ![](media/images/intro_logo.jpg) -->
+![background](media/images/bg.png)
 
 <!-- content -->
 # Christy's Thirsty Beer Rides
-> Toured rides around St. Petersburgh
+> Casual, fun, group bike tours meandering around town and 
+> stopping for adult beverages!
+
+> <small>St. Petersburg, FL</small>
 
 <!-- social media links -->
 [Facebook](https://www.facebook.com/Christys-Thirsty-Beer-Rides-102891621665302)
+<a href="./media/files/waiver.pdf">Download the Waiver</a>
+
+<!-- background image -->
 
 <!-- background color -->
-![color](#8399f2)
+![color](#f5f5f5)
