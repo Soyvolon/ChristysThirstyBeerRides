@@ -1,11 +1,11 @@
 <!-- docs/_coverpage.md -->
 
 <!-- logo -->
-<!-- ![](media/images/intro_logo.jpg) -->
-![background](media/images/bg.png)
+![logo](media/images/ctbr_logo_no_bottom.svg)
+<!-- ![background](media/images/bg.png) -->
 
 <!-- content -->
-# Christy's Thirsty Beer Rides
+<!-- # Christy's Thirsty Beer Rides -->
 > Casual, fun, group bike tours meandering around town and 
 > stopping for adult beverages!
 
