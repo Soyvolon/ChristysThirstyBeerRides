@@ -12,6 +12,7 @@
 > <small>St. Petersburg, FL</small>
 
 <!-- social media links -->
+[Upcoming Events](/#upcoming-events)
 [Facebook](https://www.facebook.com/Christys-Thirsty-Beer-Rides-102891621665302)
 <a href="./media/files/waiver.pdf">Download the Waiver</a>
 
