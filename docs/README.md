@@ -1,21 +1,21 @@
 # Upcoming Events
-
-## Christy's Thirsty Beer Ride - Roll out 4pm (check-in 3:00-3:50pm) - NEW Brewery!
-> Saturday, January 23rd<br />
+> Hops and Props - 335 2nd Ave NE · St. Petersburg, FL<br />
 Pre-ride beers/Check-in: 3:00-3:50 pm<br />
 Roll out: 4:00 pm
 
-Ride with us and check out some of St. Pete’s best breweries! Do it!
+Saturday should be back up in the 70's with sun! Come out for a leisurely bike ride and check out some of St. Pete's best local breweries!
 
-**PRIZES and DRINK Specials/Giveaways sponsored by our favorite realtor - "Von Tiki" and a few of my own**
+Arrive as early as 3:00 pm to check-in and enjoy a beer before we roll out. Check-in before partaking!!
 
-### STOPS and DRINK SPECIALS:
-1) Starting at If I Brewed the World Brewery - $1.00 off beers
-2) Hawthorne Bottle Shoppe - $5.00 off drafts (regular price $8-$12)
-3) Avid Brew Company - $1.00 off beers
-4) Finish up at the NEW Grand Central Brew - $1.00 of beers!!
+### PRIZES and GIVEAWAYS
+Sponsored by our favorite realtor - "Von Tiki" and and our newest sponsor ... Mark at St. Pete Bicycle & Fitness who is giving every rider a $5 coupon to use at his store!
 
-!> RIDE FEE: $10 for advanced RSVP's ($15 day of ride)
+### DISTANCE and DRINK SPECIALS:
+5 miles (ish) ... maybe a little more, maybe a little less.
+
+Exclusive drink specials for Christy's Thirsty Beer Rides!
+
+!> RIDE FEE: $10 for advanced RSVP's ($15 day of ride) - and get $5 back to use at St. Pete Bicycle & Fitness!!
 
 ### FORMS OF PAYMENT:
 - Cash App - [$ChristyHaagsma](https://cash.app/$ChristyHaagsma)
@@ -24,10 +24,7 @@ Ride with us and check out some of St. Pete’s best breweries! Do it!
 - Cash
 
 ### PARKING
-There is a public parking lot under the interstate at 18th St. South & 1st Ave. South that offers parking by the hour (more than 2 hours) using ParkMobile.
-
-### RIDE PACE
-Slow - like turtle slow!
+Parking at The Pier can be challenging ... consider parking a little further out and riding your bike over.
 
 ### WHAT TO BRING:
 - A bike
@@ -36,7 +33,12 @@ Slow - like turtle slow!
 - Bike lock
 - Helmet
 
+Follow Christy's Thirsty Beer Rides on [Facebook](https://www.facebook.com/Christys-Thirsty-Beer-Rides-102891621665302)
+
 # Past Events
+
+## Christy's Thirsty Beer Ride - Roll out 4pm (check-in 3:00-3:50pm) - NEW Brewery!
+> Saturday, January 23rd<br />
 
 ## Christy's Thirsty "Hair of the Dog" New Year's Day Beer Ride
 > Friday, January 1st, 3:00pm - **$10 advanced ($15 day of)**<br />
