@@ -1,5 +1,5 @@
 # Upcoming Events
-> Hops and Props - 335 2nd Ave NE · St. Petersburg, FL<br />
+> Saturday February 6th, Hops and Props - 335 2nd Ave NE · St. Petersburg, FL<br />
 Pre-ride beers/Check-in: 3:00-3:50 pm<br />
 Roll out: 4:00 pm
 
