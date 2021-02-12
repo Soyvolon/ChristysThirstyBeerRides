@@ -1,30 +1,32 @@
 # Upcoming Events
-> Saturday February 6th, Hops and Props - 335 2nd Ave NE · St. Petersburg, FL<br />
-Pre-ride beers/Check-in: 3:00-3:50 pm<br />
-Roll out: 4:00 pm
 
-Saturday should be back up in the 70's with sun! Come out for a leisurely bike ride and check out some of St. Pete's best local breweries!
+!> All rides require a waiver that has been signed this year. Download the waiver <a href="./media/files/waiver.pdf">here</a>
 
-Arrive as early as 3:00 pm to check-in and enjoy a beer before we roll out. Check-in before partaking!!
+## Christy's Thirsty MURAL and BEER Ride
+> Check-in 2-2:50pm<br />
+Roll out 3pm
+
+What better way is there to explore St. Pete's amazing murals then by a fun, casual bike ride ... with hydration stops at local breweries?!
+
+Arrive as early as 2:00 pm to check-in and enjoy a beer before we roll out. Check-in before partaking!!
 
 ### PRIZES and GIVEAWAYS
 Sponsored by our favorite realtor - "Von Tiki" and and our newest sponsor ... Mark at St. Pete Bicycle & Fitness who is giving every rider a $5 coupon to use at his store!
 
 ### DISTANCE and DRINK SPECIALS:
-5 miles (ish) ... maybe a little more, maybe a little less.
+5-8 miles (ish) ... maybe a little more, maybe a little less.
 
 Exclusive drink specials for Christy's Thirsty Beer Rides!
 
 !> RIDE FEE: $10 for advanced RSVP's ($15 day of ride) - and get $5 back to use at St. Pete Bicycle & Fitness!!
 
 ### FORMS OF PAYMENT:
-- Cash App - [$ChristyHaagsma](https://cash.app/$ChristyHaagsma)
 - Venmo - [@Christy-Haagsma](https://venmo.com/code?user_id=2531433834872832171)
 - PayPal – [Christy Haagsma](https://PayPal.me/christyhaagsma/USD10)
 - Cash
 
-### PARKING
-Parking at The Pier can be challenging ... consider parking a little further out and riding your bike over.
+<!-- ### PARKING
+Parking at The Pier can be challenging ... consider parking a little further out and riding your bike over. -->
 
 ### WHAT TO BRING:
 - A bike
@@ -35,7 +37,12 @@ Parking at The Pier can be challenging ... consider parking a little further out
 
 Follow Christy's Thirsty Beer Rides on [Facebook](https://www.facebook.com/Christys-Thirsty-Beer-Rides-102891621665302)
 
+!> Refunds will be issued for cancellations up to 24 hours before the posted start time of the ride. Refunds will be issued via original form of payment. Ride will go on rain/sprinkle (within reason – to be determined by the ride leader) or shine. If the ride is canceled by the ride leader, refunds will be issued via original form of payment within 48 hours.
+
 # Past Events
+
+## Hops and Props
+> Saturday February 6th - 335 2nd Ave NE · St. Petersburg, FL
 
 ## Christy's Thirsty Beer Ride - Roll out 4pm (check-in 3:00-3:50pm) - NEW Brewery!
 > Saturday, January 23rd<br />
