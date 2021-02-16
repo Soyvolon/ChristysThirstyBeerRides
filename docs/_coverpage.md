@@ -14,6 +14,7 @@
 <!-- social media links -->
 [Upcoming Events](/#upcoming-events)
 [Facebook](https://www.facebook.com/Christys-Thirsty-Beer-Rides-102891621665302)
+[Payment](#forms-of-payment)
 <a href="./media/files/waiver.pdf">Download the Waiver</a>
 
 <!-- background image -->

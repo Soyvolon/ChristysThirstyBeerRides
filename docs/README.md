@@ -23,6 +23,7 @@ Exclusive drink specials for Christy's Thirsty Beer Rides!
 ### FORMS OF PAYMENT:
 - Venmo - [@Christy-Haagsma](https://venmo.com/code?user_id=2531433834872832171)
 - PayPal – [Christy Haagsma](https://PayPal.me/christyhaagsma/USD10)
+- Zelle - 919-244-3472
 - Cash
 
 <!-- ### PARKING
