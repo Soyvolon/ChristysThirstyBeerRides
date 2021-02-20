@@ -21,6 +21,7 @@ Exclusive drink specials for Christy's Thirsty Beer Rides!
 !> RIDE FEE: $10 for advanced RSVP's ($15 day of ride) - and get $5 back to use at St. Pete Bicycle & Fitness!!
 
 ### FORMS OF PAYMENT:
+- Cash App - [$ChristyHaagsma](https://cash.app/$ChristyHaagsma)
 - Venmo - [@Christy-Haagsma](https://venmo.com/code?user_id=2531433834872832171)
 - PayPal – [Christy Haagsma](https://PayPal.me/christyhaagsma/USD10)
 - Zelle - 919-244-3472
