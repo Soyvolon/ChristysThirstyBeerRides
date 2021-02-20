@@ -3,8 +3,9 @@
 !> All rides require a waiver that has been signed this year. Download the waiver <a href="./media/files/waiver.pdf">here</a>
 
 ## Christy's Thirsty MURAL and BEER Ride
-> Check-in 2-2:50pm<br />
-Roll out 3pm
+> Check-in 2-2:50pm, Roll out 3pm<br />
+Bayboro Brewing Co. 2390 5th Ave S · St. Petersburg, FL<br />
+Sunday, February 21st.
 
 What better way is there to explore St. Pete's amazing murals then by a fun, casual bike ride ... with hydration stops at local breweries?!
 
@@ -17,6 +18,9 @@ Sponsored by our favorite realtor - "Von Tiki" and and our newest sponsor ... Ma
 5-8 miles (ish) ... maybe a little more, maybe a little less.
 
 Exclusive drink specials for Christy's Thirsty Beer Rides!
+
+### ROUTE and STOPS: 
+Starting at Bayboro Brewing, then rolling over to Avid Brewing. From Avid we will make our way to St. Pete Brewing before we loop back around for a stop at Grand Central Brewhouse. Finally, we will head back to Bayboro. There will be murals to see between each stop!
 
 !> RIDE FEE: $10 for advanced RSVP's ($15 day of ride) - and get $5 back to use at St. Pete Bicycle & Fitness!!
 
