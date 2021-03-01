@@ -4,8 +4,8 @@
 
 ## Christy's Thirsty MURAL and BEER Ride
 > Check-in 2-2:50pm, Roll out 3pm<br />
-Bayboro Brewing Co. 2390 5th Ave S · St. Petersburg, FL<br />
-Sunday, February 21st.
+ Cage Brewing, 2001 1st Ave S, St. Petersburg, FL<br />
+Saturday, March 13th.
 
 What better way is there to explore St. Pete's amazing murals then by a fun, casual bike ride ... with hydration stops at local breweries?!
 
@@ -20,7 +20,10 @@ Sponsored by our favorite realtor - "Von Tiki" and and our newest sponsor ... Ma
 Exclusive drink specials for Christy's Thirsty Beer Rides!
 
 ### ROUTE and STOPS: 
-Starting at Bayboro Brewing, then rolling over to Avid Brewing. From Avid we will make our way to St. Pete Brewing before we loop back around for a stop at Grand Central Brewhouse. Finally, we will head back to Bayboro. There will be murals to see between each stop!
+Starting at Cage Brewing we will meander our way into downtown St. Pete stopping at Courigan’s Irish Pub, Mary Margaret’s Olde Irish Tavern and the Whiskey Exchange (in no particular order) before we make our way back to Cage Brewing.
+
+### DISTANCE and SPEED:
+5 (ish) miles ... maybe a little more, maybe a little less at a very casual speed.
 
 !> RIDE FEE: $10 for advanced RSVP's ($15 day of ride) - and get $5 back to use at St. Pete Bicycle & Fitness!!
 
@@ -31,8 +34,8 @@ Starting at Bayboro Brewing, then rolling over to Avid Brewing. From Avid we wil
 - Zelle - 919-244-3472
 - Cash
 
-<!-- ### PARKING
-Parking at The Pier can be challenging ... consider parking a little further out and riding your bike over. -->
+### PARKING
+There is extended parking under the interstate on the corner of 1st Ave South & 18th St South
 
 ### WHAT TO BRING:
 - A bike
@@ -46,6 +49,9 @@ Follow Christy's Thirsty Beer Rides on [Facebook](https://www.facebook.com/Chris
 !> Refunds will be issued for cancellations up to 24 hours before the posted start time of the ride. Refunds will be issued via original form of payment. Ride will go on rain/sprinkle (within reason – to be determined by the ride leader) or shine. If the ride is canceled by the ride leader, refunds will be issued via original form of payment within 48 hours.
 
 # Past Events
+
+## Christy's Thirsty MURAL and BEER Ride
+> Sunday, February 21st.
 
 ## Hops and Props
 > Saturday February 6th - 335 2nd Ave NE · St. Petersburg, FL
