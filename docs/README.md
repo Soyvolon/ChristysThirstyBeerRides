@@ -2,12 +2,14 @@
 
 !> All rides require a waiver that has been signed this year. Download the waiver <a href="./media/files/waiver.pdf">here</a>
 
-## Christy's Thirsty MURAL and BEER Ride
+## "Practice" St. Patty's Day Beer & Whiskey Ride
 > Check-in 2-2:50pm, Roll out 3pm<br />
  Cage Brewing, 2001 1st Ave S, St. Petersburg, FL<br />
 Saturday, March 13th.
 
-What better way is there to explore St. Pete's amazing murals then by a fun, casual bike ride ... with hydration stops at local breweries?!
+Start your St. Patty’s Day early with a “practice” round!
+
+Join us as we take a leisurely, fun bike ride around St. Pete dressed in green … visiting some of St. Pete’s best Irish and whiskey spots!
 
 Arrive as early as 2:00 pm to check-in and enjoy a beer before we roll out. Check-in before partaking!!
 
