@@ -22,7 +22,7 @@ Sponsored by our favorite realtor - "Von Tiki" and and our newest sponsor ... Ma
 Exclusive drink specials for Christy's Thirsty Beer Rides!
 
 ### ROUTE and STOPS: 
-Starting at Cage Brewing we will meander our way into downtown St. Pete stopping at Courigan’s Irish Pub, Mary Margaret’s Olde Irish Tavern and the Whiskey Exchange (in no particular order) before we make our way back to Cage Brewing.
+Starting at Cage Brewing we will meander our way into downtown St. Pete stopping at Courigan’s Irish Pub, the Whiskey Exchange, and one more stop (in no particular order) before we make our way back to Cage Brewing.
 
 ### DISTANCE and SPEED:
 5 (ish) miles ... maybe a little more, maybe a little less at a very casual speed.
