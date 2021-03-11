@@ -1,6 +1,6 @@
 # Upcoming Events
 
-!> All rides require a waiver that has been signed this year. Download the waiver <a href="./media/files/waiver.pdf">here</a>
+!> All rides require a waiver that has been signed this year. Sign the waiver [here](https://app.waiversign.com/e/603c0adb7f7f610019a7293b/doc/603c0b743222d400197e44d5?event=none)
 
 ## "Practice" St. Paddy's Day Beer & Whiskey Ride
 > Check-in 2-2:50pm, Roll out 3pm<br />
