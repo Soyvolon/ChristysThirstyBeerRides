@@ -2,7 +2,7 @@
 
 !> All rides require a waiver that has been signed this year. Download the waiver <a href="./media/files/waiver.pdf">here</a>
 
-## "Practice" St. Patty's Day Beer & Whiskey Ride
+## "Practice" St. Paddy's Day Beer & Whiskey Ride
 > Check-in 2-2:50pm, Roll out 3pm<br />
  Cage Brewing, 2001 1st Ave S, St. Petersburg, FL<br />
 Saturday, March 13th.
