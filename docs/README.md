@@ -32,7 +32,7 @@ Starting at Cage Brewing we will meander our way into downtown St. Pete stopping
 ### FORMS OF PAYMENT:
 - Cash App - [$ChristyHaagsma](https://cash.app/$ChristyHaagsma)
 - Venmo - [@Christy-Haagsma](https://venmo.com/code?user_id=2531433834872832171)
-- PayPal – [Christy Haagsma](https://PayPal.me/christyhaagsma/USD10)
+- PayPal – 919-244-3472
 - Zelle - 919-244-3472
 - Cash
 
