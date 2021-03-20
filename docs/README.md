@@ -2,32 +2,34 @@
 
 !> All rides require a waiver that has been signed this year. Sign the waiver [here](https://app.waiversign.com/e/603c0adb7f7f610019a7293b/doc/603c0b743222d400197e44d5?event=none)
 
-## "Practice" St. Paddy's Day Beer & Whiskey Ride
+## Beers & Murals Bike Crawl
 > Check-in 2-2:50pm, Roll out 3pm<br />
- Cage Brewing, 2001 1st Ave S, St. Petersburg, FL<br />
-Saturday, March 13th.
+ Bayboro Brewing, 2390 5th Ave S, St. Petersburg, FL<br />
+Saturday, March 27th.
 
-Start your St. Patty’s Day early with a “practice” round!
+*Limited Bike Rentals available* 
 
-Join us as we take a leisurely, fun bike ride around St. Pete dressed in green … visiting some of St. Pete’s best Irish and whiskey spots!
+Join Christy’s Thirsty Beer Rides as we take a leisurely, fun bike ride (crawl) around St. Pete checking out some murals with beer stops along the way.
 
 Arrive as early as 2:00 pm to check-in and enjoy a beer before we roll out. Check-in before partaking!!
 
-### PRIZES and GIVEAWAYS
-Sponsored by our favorite realtor - "Von Tiki" and and our newest sponsor ... Mark at St. Pete Bicycle & Fitness who is giving every rider a $5 coupon to use at his store!
-
-### DISTANCE and DRINK SPECIALS:
-5-8 miles (ish) ... maybe a little more, maybe a little less.
-
+### DRINK SPECIALS
 Exclusive drink specials for Christy's Thirsty Beer Rides!
 
-### ROUTE and STOPS: 
-Starting at Cage Brewing we will meander our way into downtown St. Pete stopping at Courigan’s Irish Pub, the Whiskey Exchange, and one more stop (in no particular order) before we make our way back to Cage Brewing.
+### PRIZES and GIVEAWAYS
+Sponsored by our favorite realtor - "Von Tiki" and St. Pete Bicycle & Fitness who is giving every rider a $5 gift card!
 
 ### DISTANCE and SPEED:
 5 (ish) miles ... maybe a little more, maybe a little less at a very casual speed.
 
-!> RIDE FEE: $10 for advanced RSVP's ($15 day of ride) - and get $5 back to use at St. Pete Bicycle & Fitness!!
+### ROUTE and STOPS: 
+Starting at Bayboro Brewing we will meander our way past murals to St. Pete Brewing, Pinellas Ale Works, Right Around the Corner and back to Bayboro Brewing.
+
+### DISTANCE and SPEED:
+5 (ish) miles ... maybe a little more, maybe a little less at a very casual speed.
+
+!> RIDE FEE: $10 for advanced RSVP's ($15 day of ride) - and get $5 back to use at St. Pete Bicycle & Fitness!! <br />
+**Need a bike? $25 advanced RSVP only**
 
 ### FORMS OF PAYMENT:
 - Cash App - [$ChristyHaagsma](https://cash.app/$ChristyHaagsma)
@@ -37,11 +39,11 @@ Starting at Cage Brewing we will meander our way into downtown St. Pete stopping
 - Cash
 
 ### PARKING
-There is extended parking under the interstate on the corner of 1st Ave South & 18th St South
+Bayboro has free parking. Please be considerate and park at the back of the lot or on the side as we will not be staying there the entire time.
 
 ### WHAT TO BRING:
-- A bike
-- Lights – it will be getting dark!
+- Bike or rent one of mine
+- Lights
 - Mask (wear at your discretion - required for going indoors)
 - Bike lock
 - Helmet
@@ -51,6 +53,11 @@ Follow Christy's Thirsty Beer Rides on [Facebook](https://www.facebook.com/Chris
 !> Refunds will be issued for cancellations up to 24 hours before the posted start time of the ride. Refunds will be issued via original form of payment. Ride will go on rain/sprinkle (within reason – to be determined by the ride leader) or shine. If the ride is canceled by the ride leader, refunds will be issued via original form of payment within 48 hours.
 
 # Past Events
+
+## "Practice" St. Paddy's Day Beer & Whiskey Ride
+> Check-in 2-2:50pm, Roll out 3pm<br />
+ Cage Brewing, 2001 1st Ave S, St. Petersburg, FL<br />
+Saturday, March 13th.
 
 ## Christy's Thirsty MURAL and BEER Ride
 > Sunday, February 21st.
