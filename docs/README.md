@@ -42,7 +42,7 @@ Arrive as early as 4:30 pm to check-in and enjoy a beer before we roll out. Chec
 - Cash
 
 ### PARKING
-Bayboro has free parking. Please be considerate and park at the back of the lot or on the side as we will not be staying there the entire time.
+There is extended parking under the interstate on the corner of 1st Ave South & 18th St South – half a block from Avid Brew Company
 
 ### WHAT TO BRING:
 - Bike or rent one of mine
