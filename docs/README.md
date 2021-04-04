@@ -2,13 +2,13 @@
 
 !> All rides require a waiver that has been signed this year. Sign the waiver [here](https://app.waiversign.com/e/603c0adb7f7f610019a7293b/doc/603c0b743222d400197e44d5?event=none)
 
-## Christy's Thirsty "Friday Night Lights" Casual Beer Bike Ride
-> Friday, April 9th – 5:30pm (arrive between 4:30-5:20 to check-in and enjoy a beer) <br />
+## Christy's Thirsty "Sunday Funday" Casual Beer Bike Ride
+> Sunday, April 11 – 2:30pm (arrive between 1:30-2:20 to check-in and enjoy a beer) <br />
 Starting at Avid Brew Company – 1745 1st Ave S., St. Pete
 
 *Limited Bike Rentals available* 
 
-Join Christy's Thirsty Beer Rides as we take a leisurely, fun, "Friday Night Lights" bike ride around St. Pete with beer stops along the way. Lights are a must for this ride … **_Prize given for the best bike lights!_**
+Join Christy’s Thirsty Beer Rides as we take a leisurely, fun, Sunday Funday bike ride around St. Pete. Meet some new friends, check-out local breweries while enjoying this awesome city! 
 
 ### DRINK SPECIALS
 Exclusive drink specials for Christy's Thirsty Beer Rides!
@@ -26,10 +26,10 @@ Starting at Avid Brew Co. we will meander our way through St. Pete to Hops and P
 5 (ish) miles ... maybe a little more, maybe a little less at a very casual speed.
 
 ### CHECK IN
-Arrive as early as 4:30 pm to check-in and enjoy a beer before we roll out. Check-in before partaking for drink specials!!
+Arrive as early as 1:30 pm to check-in and enjoy a beer before we roll out. Check-in before partaking for drink specials!!
 
 ### ROLL OUT TIME
-5:30 PM
+2:30 PM
 
 !> RIDE FEE: $10 for advanced RSVP's ($15 day of ride) - and get $5 back to use at St. Pete Bicycle & Fitness!! <br />
 **Need a bike? $25 advanced RSVP only**
