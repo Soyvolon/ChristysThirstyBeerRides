@@ -3,7 +3,7 @@
 !> All rides require a waiver that has been signed this year. Sign the waiver [here](https://app.waiversign.com/e/603c0adb7f7f610019a7293b/doc/603c0b743222d400197e44d5?event=none)
 
 ## Christy's Thirsty "Sunday Funday" Casual Beer Bike Ride
-> Sunday, April 11 – 2:30pm (arrive between 1:30-2:20 to check-in and enjoy a beer) <br />
+> Sunday, April 18 – 2:30pm (arrive between 1:30-2:20 to check-in and enjoy a beer) <br />
 Starting at Avid Brew Company – 1745 1st Ave S., St. Pete
 
 *Limited Bike Rentals available* 
