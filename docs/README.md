@@ -2,13 +2,13 @@
 
 !> All rides require a waiver that has been signed this year. Sign the waiver [here](https://app.waiversign.com/e/603c0adb7f7f610019a7293b/doc/603c0b743222d400197e44d5?event=none)
 
-## Christy's Thirsty "Sunday Funday" Casual Beer Bike Ride
-> Sunday, April 18 – 2:30pm (arrive between 1:30-2:20 to check-in and enjoy a beer) <br />
-Starting at Avid Brew Company – 1745 1st Ave S., St. Pete
+## Christy's Thirsty BEER and MURAL Casual Bike Ride
+> Sunday, May 2nd – 3:00pm (arrive between 2:00-2:50/roll out 3:00) <br />
+Starting at Bayboro Brewing - 2390 5th Ave S, St. Petersburg, FL
 
 *Limited Bike Rentals available* 
 
-Join Christy’s Thirsty Beer Rides as we take a leisurely, fun, Sunday Funday bike ride around St. Pete. Meet some new friends, check-out local breweries while enjoying this awesome city! 
+Join Christy’s Thirsty Beer Rides as we take a leisurely, fun, bike ride around St. Pete. Meet some new friends, check-out local breweries, check out some murals!
 
 ### DRINK SPECIALS
 Exclusive drink specials for Christy's Thirsty Beer Rides!
@@ -20,16 +20,16 @@ Sponsored by our favorite realtor - "Von Tiki" and St. Pete Bicycle & Fitness wh
 5 (ish) miles ... maybe a little more, maybe a little less at a very casual speed.
 
 ### ROUTE and STOPS: 
-Starting at Avid Brew Co. we will meander our way through St. Pete to Hops and Props, Overflow Brewing, the new Edge Collective Market Place and back to Avid Brew Co.
+Starting at Bayboro Brewing - Route TBD
 
 ### DISTANCE and SPEED:
 5 (ish) miles ... maybe a little more, maybe a little less at a very casual speed.
 
 ### CHECK IN
-Arrive as early as 1:30 pm to check-in and enjoy a beer before we roll out. Check-in before partaking for drink specials!!
+Arrive as early as 2:00 pm to check-in and enjoy a beer before we roll out. Check-in before partaking for drink specials!!
 
 ### ROLL OUT TIME
-2:30 PM
+3:00 PM
 
 !> RIDE FEE: $10 for advanced RSVP's ($15 day of ride) - and get $5 back to use at St. Pete Bicycle & Fitness!! <br />
 **Need a bike? $25 advanced RSVP only**
@@ -42,7 +42,7 @@ Arrive as early as 1:30 pm to check-in and enjoy a beer before we roll out. Chec
 - Cash
 
 ### PARKING
-There is extended parking under the interstate on the corner of 1st Ave South & 18th St South – half a block from Avid Brew Company
+There is parking at Bayboro Brewing
 
 ### WHAT TO BRING:
 - Bike or rent one of mine
@@ -56,6 +56,10 @@ Follow Christy's Thirsty Beer Rides on [Facebook](https://www.facebook.com/Chris
 !> Refunds will be issued for cancellations up to 24 hours before the posted start time of the ride. Refunds will be issued via original form of payment. Ride will go on rain/sprinkle (within reason – to be determined by the ride leader) or shine. If the ride is canceled by the ride leader, refunds will be issued via original form of payment within 48 hours.
 
 # Past Events
+
+## Christy's Thirsty "Sunday Funday" Casual Beer Bike Ride
+> Sunday, April 18 – 2:30pm (arrive between 1:30-2:20 to check-in and enjoy a beer) <br />
+Starting at Avid Brew Company – 1745 1st Ave S., St. Pete
 
 ## Beers & Murals Bike Crawl
 > Check-in 2-2:50pm, Roll out 3pm<br />
