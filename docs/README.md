@@ -3,7 +3,7 @@
 !> All rides require a waiver that has been signed this year. Sign the waiver [here](https://app.waiversign.com/e/603c0adb7f7f610019a7293b/doc/603c0b743222d400197e44d5?event=none)
 
 ## Christy's Thirsty BEER and MURAL Casual Bike Ride
-> Sunday, May 2nd – 3:00pm (arrive between 2:00-2:50/roll out 3:00) <br />
+> Sunday, May 16th – 3:00pm (arrive between 2:00-2:50/roll out 3:00) <br />
 Starting at Bayboro Brewing - 2390 5th Ave S, St. Petersburg, FL
 
 *Limited Bike Rentals available* 
