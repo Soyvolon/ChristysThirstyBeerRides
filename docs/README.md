@@ -20,7 +20,7 @@ Sponsored by our favorite realtor - "Von Tiki" and St. Pete Bicycle & Fitness wh
 5 (ish) miles ... maybe a little more, maybe a little less at a very casual speed.
 
 ### ROUTE and STOPS: 
-Starting at Bayboro Brewing - Route TBD
+Starting at Bayboro Brewing, then making our way to Avid Brew Company. We will then trek over to St. Pete Brewing where you can enjoy a cold draft and $2 slices of pizza from Angelo's. From there we head up to Grand Central Brewhouse before making our way back to Bayboro. There'll be murals to see between each stop!
 
 ### DISTANCE and SPEED:
 5 (ish) miles ... maybe a little more, maybe a little less at a very casual speed.
