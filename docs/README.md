@@ -41,13 +41,9 @@ Arrive as early as 2:00 pm to check-in and enjoy a beer before we roll out. Chec
 - Zelle - 919-244-3472
 - Cash
 
-### PARKING
- Extended (paid) parking available under the interstate on the corner of 1st Ave South & 18th St South – a few blocks from Cage Brewing and Pinellas Ale Works
-
 ### WHAT TO BRING:
 - Bike or rent one of mine
 - Lights
-- Mask (wear at your discretion - required for going indoors)
 - Bike lock
 - Helmet
 
