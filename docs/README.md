@@ -2,8 +2,8 @@
 
 !> All rides require a waiver that has been signed this year. Sign the waiver [here](https://app.waiversign.com/e/603c0adb7f7f610019a7293b/doc/603c0b743222d400197e44d5?event=none)
 
-## Christy's Thirsty BEER and MURAL Casual Bike Ride
-> Sunday, June 27th – 3:00pm (check-in 2-2:50/roll-out 3pm) <br />
+## Christy's Thirsty WHISKEY Ride
+> Sunday, June 27th – 3:00pm (check-in 2-2:50/ride starts 3pm) <br />
 Starting at Courigan’s Irish Pub – 1 Beach Dr., SE #41 – St. Petersburg
 
 *Limited Bike Rentals available* 
@@ -28,7 +28,7 @@ Starting at Courigan's Irish Pub, we make our way to the Whiskey Exchange. We wi
 5 (ish) miles ... maybe a little more, maybe a little less at a very casual speed.
 
 ### CHECK IN
-Arrive as early as 2:00 pm to check-in and enjoy a beer before we roll out. Check-in before partaking for drink specials!!
+Arrive as early as 2:00 pm to check-in and enjoy a Beverage before we roll out. Check-in before partaking for drink specials!!
 
 ### ROLL OUT TIME
 3:00 PM
@@ -48,10 +48,13 @@ Arrive as early as 2:00 pm to check-in and enjoy a beer before we roll out. Chec
 - Lights
 - Bike lock
 - Helmet
+- Water and Helmet recommended
 
 Follow Christy's Thirsty Beer Rides on [Facebook](https://www.facebook.com/Christys-Thirsty-Beer-Rides-102891621665302)
 
 !> Refunds will be issued for cancellations up to 24 hours before the posted start time of the ride. Refunds will be issued via original form of payment. Ride will go on rain/sprinkle (within reason – to be determined by the ride leader) or shine. If the ride is canceled by the ride leader, refunds will be issued via original form of payment within 48 hours.
+
+![Whiskey Ride](media/images/whiskey_ride.jpg)
 
 # Past Events
 
