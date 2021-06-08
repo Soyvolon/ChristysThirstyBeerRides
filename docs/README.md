@@ -3,12 +3,14 @@
 !> All rides require a waiver that has been signed this year. Sign the waiver [here](https://app.waiversign.com/e/603c0adb7f7f610019a7293b/doc/603c0b743222d400197e44d5?event=none)
 
 ## Christy's Thirsty BEER and MURAL Casual Bike Ride
-> Saturday, June 5th – 3:00pm (check-in 2-2:50/roll-out 3pm) <br />
-Starting at Grand Central Brewhouse – 2340 Central Ave., St. Pete
+> Sunday, June 27th – 3:00pm (check-in 2-2:50/roll-out 3pm) <br />
+Starting at Courigan’s Irish Pub – 1 Beach Dr., SE #41 – St. Petersburg
 
 *Limited Bike Rentals available* 
 
-Join Christy’s Thirsty Beer Rides as we take a leisurely, fun, bike ride around St. Pete. Meet some new friends, check-out local breweries, see some murals!
+Join Christy’s Thirsty Beer Rides as we shake things up a bit with a WHISKEY tour! (Don't worry ... there'll still be beer)
+
+This is a leisurely and fun bike ride. Come out and meet some new friends and check-out some of St. Pete's best whiskey stops!
 
 ### DRINK SPECIALS
 Exclusive drink specials for Christy's Thirsty Beer Rides!
@@ -20,7 +22,7 @@ Sponsored by our favorite realtor - "Von Tiki" and St. Pete Bicycle & Fitness wh
 5 (ish) miles ... maybe a little more, maybe a little less at a very casual speed.
 
 ### ROUTE and STOPS: 
-Starting at Grand Central Brewhouse, then making our way to St. Pete Brewing where you can enjoy a cold draft and $2 slices of pizza from Angelo's. We will then head up to Bayboro Brewing. From there we trek over to Right around the corner. There'll be murals to see between each stop!
+Starting at Courigan's Irish Pub, we make our way to the Whiskey Exchange. We will then head over to The Copper Shaker and finish up at Flute and Dram.
 
 ### DISTANCE and SPEED:
 5 (ish) miles ... maybe a little more, maybe a little less at a very casual speed.
@@ -51,9 +53,11 @@ Follow Christy's Thirsty Beer Rides on [Facebook](https://www.facebook.com/Chris
 
 !> Refunds will be issued for cancellations up to 24 hours before the posted start time of the ride. Refunds will be issued via original form of payment. Ride will go on rain/sprinkle (within reason – to be determined by the ride leader) or shine. If the ride is canceled by the ride leader, refunds will be issued via original form of payment within 48 hours.
 
-![riders at a mural](media/images/ctbr_mural_image.jpg)
-
 # Past Events
+
+## Christy's Thirsty BEER and MURAL Casual Bike Ride
+> Saturday, June 5th – 3:00pm (check-in 2-2:50/roll-out 3pm) <br />
+Starting at Grand Central Brewhouse – 2340 Central Ave., St. Pete
 
 ## Christy's Thirsty BEER and MURAL Casual Bike Ride
 > Sunday, May 16th – 3:00pm (arrive between 2:00-2:50/roll out 3:00) <br />
