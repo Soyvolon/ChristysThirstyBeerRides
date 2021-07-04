@@ -2,15 +2,13 @@
 
 !> All rides require a waiver that has been signed this year. Sign the waiver [here](https://app.waiversign.com/e/603c0adb7f7f610019a7293b/doc/603c0b743222d400197e44d5?event=none)
 
-## Christy's Thirsty WHISKEY Ride
-> Sunday, June 27th – 3:00pm (check-in 2-2:50/ride starts 3pm) <br />
-Starting at Courigan’s Irish Pub – 1 Beach Dr., SE #41 – St. Petersburg
+## Christy's Thirsty Beer Ride
+> Sunday, July 10th – 4:00pm (check-in between 3-3:50/ride starts 4pm) <br />
+Starting at Cage Brewing - 2001 1st Ave S, St. Petersburg
 
 *Limited Bike Rentals available* 
 
-Join Christy’s Thirsty Beer Rides as we shake things up a bit with a WHISKEY tour! (Don't worry ... there'll still be beer)
-
-This is a leisurely and fun bike ride. Come out and meet some new friends and check-out some of St. Pete's best whiskey stops!
+Join Christy’s Thirsty Beer Rides for a leisurely and fun bike ride and brewery tour. Come out and meet some new friends while checking-out some of St. Pete's best breweries!
 
 ### DRINK SPECIALS
 Exclusive drink specials for Christy's Thirsty Beer Rides!
@@ -22,16 +20,16 @@ Sponsored by our favorite realtor - "Von Tiki" and St. Pete Bicycle & Fitness wh
 5 (ish) miles ... maybe a little more, maybe a little less at a very casual speed.
 
 ### ROUTE and STOPS: 
-Starting at Courigan's Irish Pub, we make our way to the Whiskey Exchange. We will then head over to The Copper Shaker and finish up at Flute and Dram.
+Starting at Cage Brewing, we make our way to Hawthorne Bottle Shoppe. We will then head over to Bayboro Brewing Co. and finish up at Pinellas Ale Works.
 
 ### DISTANCE and SPEED:
 5 (ish) miles ... maybe a little more, maybe a little less at a very casual speed.
 
 ### CHECK IN
-Arrive as early as 2:00 pm to check-in and enjoy a Beverage before we roll out. Check-in before partaking for drink specials!!
+Arrive as early as 3:00 pm to check-in and enjoy a beverage before we roll out. Check-in before partaking for drink specials!!
 
 ### ROLL OUT TIME
-3:00 PM
+4:00 PM
 
 !> RIDE FEE: $10 for advanced RSVP's ($15 day of ride) - and get $5 back to use at St. Pete Bicycle & Fitness!! <br />
 **Need a bike? $25 advanced RSVP only**
@@ -57,6 +55,10 @@ Follow Christy's Thirsty Beer Rides on [Facebook](https://www.facebook.com/Chris
 ![Whiskey Ride](media/images/whiskey_ride.jpg)
 
 # Past Events
+
+## Christy's Thirsty WHISKEY Ride
+> Sunday, June 27th – 3:00pm (check-in 2-2:50/ride starts 3pm) <br />
+Starting at Courigan’s Irish Pub – 1 Beach Dr., SE #41 – St. Petersburg
 
 ## Christy's Thirsty BEER and MURAL Casual Bike Ride
 > Saturday, June 5th – 3:00pm (check-in 2-2:50/roll-out 3pm) <br />
