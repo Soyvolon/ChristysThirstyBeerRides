@@ -52,8 +52,6 @@ Follow Christy's Thirsty Beer Rides on [Facebook](https://www.facebook.com/Chris
 
 !> Refunds will be issued for cancellations up to 24 hours before the posted start time of the ride. Refunds will be issued via original form of payment. Ride will go on rain/sprinkle (within reason – to be determined by the ride leader) or shine. If the ride is canceled by the ride leader, refunds will be issued via original form of payment within 48 hours.
 
-![Whiskey Ride](media/images/whiskey_ride.jpg)
-
 # Past Events
 
 ## Christy's Thirsty WHISKEY Ride
