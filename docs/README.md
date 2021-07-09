@@ -3,7 +3,7 @@
 !> All rides require a waiver that has been signed this year. Sign the waiver [here](https://app.waiversign.com/e/603c0adb7f7f610019a7293b/doc/603c0b743222d400197e44d5?event=none)
 
 ## Guided Bike and Brewery Tour
-> Sunday, July 10th – 4:00pm (check-in between 3-3:50/ride starts 4pm) <br />
+> Saturday, July 10th – 4:00pm (check-in between 3-3:50/ride starts 4pm) <br />
 Starting at Cage Brewing - 2001 1st Ave S, St. Petersburg
 
 *Limited Bike Rentals available* 
