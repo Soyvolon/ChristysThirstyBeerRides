@@ -2,13 +2,13 @@
 
 !> All rides require a waiver that has been signed this year. Sign the waiver [here](https://app.waiversign.com/e/603c0adb7f7f610019a7293b/doc/603c0b743222d400197e44d5?event=none)
 
-## Guided Bike and Brewery Tour
+## Christy's Thirsty Beer and Mural Ride
 > Saturday, July 10th – 4:00pm (check-in between 3-3:50/ride starts 4pm) <br />
-Starting at Cage Brewing - 2001 1st Ave S, St. Petersburg
+
 
 *Limited Bike Rentals available* 
 
-Join Christy’s Thirsty Beer Rides for a leisurely and fun bike ride and brewery tour. Come out and meet some new friends while checking-out some of St. Pete's best breweries!
+Join Christy’s Thirsty Beer Rides as we take a leisurely, fun, bike ride around St. Pete. Meet some new friends, check-out local breweries, see some murals!
 
 ### DRINK SPECIALS
 Exclusive drink specials for Christy's Thirsty Beer Rides!
@@ -20,7 +20,7 @@ Sponsored by our favorite realtor - "Von Tiki" and St. Pete Bicycle & Fitness wh
 5 (ish) miles ... maybe a little more, maybe a little less at a very casual speed.
 
 ### ROUTE and STOPS: 
-Starting at Cage Brewing, we make our way to Hawthorne Bottle Shoppe. We will then head over to Bayboro Brewing Co. and finish up at Pinellas Ale Works.
+TBD
 
 ### DISTANCE and SPEED:
 5 (ish) miles ... maybe a little more, maybe a little less at a very casual speed.
@@ -53,6 +53,10 @@ Follow Christy's Thirsty Beer Rides on [Facebook](https://www.facebook.com/Chris
 !> Refunds will be issued for cancellations up to 24 hours before the posted start time of the ride. Refunds will be issued via original form of payment. Ride will go on rain/sprinkle (within reason – to be determined by the ride leader) or shine. If the ride is canceled by the ride leader, refunds will be issued via original form of payment within 48 hours.
 
 # Past Events
+
+## Guided Bike and Brewery Tour
+> Saturday, July 10th – 4:00pm (check-in between 3-3:50/ride starts 4pm) <br />
+Starting at Cage Brewing - 2001 1st Ave S, St. Petersburg
 
 ## Christy's Thirsty WHISKEY Ride
 > Sunday, June 27th – 3:00pm (check-in 2-2:50/ride starts 3pm) <br />
