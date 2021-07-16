@@ -3,7 +3,7 @@
 !> All rides require a waiver that has been signed this year. Sign the waiver [here](https://app.waiversign.com/e/603c0adb7f7f610019a7293b/doc/603c0b743222d400197e44d5?event=none)
 
 ## Christy's Thirsty Beer and Mural Ride
-> Saturday, July 10th – 4:00pm (check-in between 3-3:50/ride starts 4pm) <br />
+> Sunday, July 25th – 4:00pm (check-in between 3-3:50/ride starts 4pm) <br />
 
 
 *Limited Bike Rentals available* 
